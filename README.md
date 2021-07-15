@@ -6,5 +6,3 @@ Curso  -  Women Who Go Curitiba
 
   
 
-
-https://www.linkedin.com/in/beatriz2071/
